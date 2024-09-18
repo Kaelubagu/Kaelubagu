@@ -1,5 +1,4 @@
-Heya! My name is Caleb.  
-I'm a Software Intern at ForeFlight. 💻  
+Heya! My name is Caleb.    
 I'm also a Video Editor on the side. 🎥  
 🏳️‍🌈  
 
